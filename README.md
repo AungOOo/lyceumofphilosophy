@@ -1,1 +1,1 @@
-# lyceumofphilosophy
+https://aungooo.github.io/lyceumofphilosophy/
